@@ -7,3 +7,9 @@ Gal Gadot wurde im Jahr 2004 als Miss Israel bekannt und trat im selben Jahr bei
 * strahlendes Lächeln
 * wunderschön
 * sportlich
+
+## Das ist ihr Motto
+
+> It's about what you believe. And I believe in love.
+> Only love will truly save the world.
+
