@@ -13,3 +13,4 @@ Gal Gadot wurde im Jahr 2004 als Miss Israel bekannt und trat im selben Jahr bei
 > It's about what you believe. And I believe in love.
 > Only love will truly save the world.
 
+<img src="https://a-cdn.serienjunkies.de/hq/4/3/gal-gadot-43431_hq.jpg"/>
